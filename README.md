@@ -1,0 +1,11 @@
+# jobsheet6
+(1)
+![alt text](https://github.com/Lukaserwindo69/jobsheet6/blob/master/Screenshot%20(12).png (1))
+(2)
+![alt text](https://github.com/Lukaserwindo69/jobsheet6/blob/master/Screenshot%20(13).png (2))
+(3)
+![alt text](https://github.com/Lukaserwindo69/jobsheet6/blob/master/Screenshot%20(14).png (3))
+(4)
+![alt text](https://github.com/Lukaserwindo69/jobsheet6/blob/master/Screenshot%20(15).png (4))
+(5)
+![alt text](https://github.com/Lukaserwindo69/jobsheet6/blob/master/Screenshot%20(16).png (5))
